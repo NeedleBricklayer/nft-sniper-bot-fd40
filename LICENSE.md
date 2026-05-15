@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with custom nft sniper bot | wash-trading-detection + auto-sell, the #1 nft sniper bot. Includes wash-trading-detection and auto-sell for a faster and
 
 
 
